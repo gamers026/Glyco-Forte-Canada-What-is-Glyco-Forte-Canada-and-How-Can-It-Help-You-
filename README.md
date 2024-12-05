@@ -1,5 +1,5 @@
-# [||➥✅Exclusive Details ||](https://www.facebook.com/My.Glyco.Balance.New.Zealand)
-# [||▶▶✅ Get Your Bottle Here ||    ](https://supplementcarts.com/glyco-balance-nz-official/)        
+# [||➥✅Exclusive Details ||](https://supplementcarts.com/glyco-forte-canada-official/)
+# [||▶▶✅ Get Your Bottle Here ||    ](https://www.facebook.com/Glyco.Forte.Canada.Buyers)        
 
 ![Glyco Forte Canada2](https://github.com/user-attachments/assets/89752e79-6eff-4eb3-a96a-6c82a56edea5)
 
